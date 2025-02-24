@@ -1,6 +1,6 @@
 # Taraftarium24 DERBİ HD Canlı Maç izleyin
 
-Taraftarium24, futbolseverler için maç keyfini en üst seviyeye çıkarıyor! Taraftarlar, takımlarının sahada verdiği mücadeleyi kesintisiz ve en iyi kalitede izlemek ister. İşte tam da bu yüzden, bugün saat 19:00’da oynanacak Galatasaray - Fenerbahçe maçını HD kalitesinde ve donma olmadan izlemek için Taraftarium24 en doğru adres!
+Taraftarium24, futbolseverler için maç keyfini en üst seviyeye çıkarıyor! Taraftarlar, takımlarının sahada verdiği mücadeleyi kesintisiz ve en iyi kalitede izlemek ister. İşte tam da bu yüzden, bugün saat 20:00’da oynanacak Galatasaray - Fenerbahçe maçını HD kalitesinde ve donma olmadan izlemek için Taraftarium24 en doğru adres!
 
 # Galatasaray - Fenerbahçe Maçı Taraftarium24’de Canlı Yayında! 🎥
 
